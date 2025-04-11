@@ -6,4 +6,14 @@ Welcome to my DevOps learning journey with The Coding Mum DevOps Squad!
 - Learned to create repositories
 - Wrote and pushed my first README
 
+
 Stay tuned for more 🚀
+
+
+😊https://www.linkedin.com/in/nofisat-ayanlola
+
+✨https://x.com/Nafkem1
+
+😊
+
+
